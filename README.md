@@ -1,5 +1,5 @@
 
-# 【﻿ＬＯＧ．１】![image](https://transbro.neocities.org/Graphics/Blinkies/Inthezone2.gif)
+# :【﻿ＬＯＧ．１】![image](https://transbro.neocities.org/Graphics/Blinkies/Inthezone2.gif)
 
 ( heyyy! welcome to my README.log ! )
 
