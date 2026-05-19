@@ -60,14 +60,8 @@
 
 ![image](https://dividers.crd.co/assets/images/gallery10/9cee9c9b.gif?v=05d33f91)
 
-...
 
-...
-
-...
-
-thanks 4 reading :3 
 
 ![image](https://i.pinimg.com/originals/8d/33/fe/8d33fe5c058ec46d4215331f28a248d9.gif)
 
-![image](https://dividers.crd.co/assets/images/gallery09/0768763f.gif?v=05d33f91)
+
